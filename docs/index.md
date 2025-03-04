@@ -11,8 +11,9 @@ Upcoming services:
 | Date | Leader |
 |------|--------|
 | 9 Feb | Revd Gill Sharp |
-| 9 Mar | TBC |
-| 13 Apr | TBC |
+| 9 Mar | Revd Julie Letts (Followed by Church Council meeting) |
+| 13 Apr | Revd Gill Sharp |
+| 11 May | Local Arrangement |
 
 For up to date information on our services and events Like and Follow our [Facebook page](https://www.facebook.com/SparrowpitMethodist)
 
