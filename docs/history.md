@@ -8,7 +8,7 @@
 
 According to the Chapel Diamond Jubilee booklet *"The seed of Methodism was first sown in North Derbyshire at a lonely farm house known as "Barmoor" in the year 1738"* 
 
-SOme feeling for the start of the community can be gained from the Extracts from ["The Blacksmith of the Peak; or, village piety and usefulness, exemplified in the life of the late John Hallam, of Sparrowpit, Derbyshire"](http://peakdistricthallamfamily.weebly.com/extracts-from-blacksmith-of-the-peak.html)
+Some feeling for the start of the community can be gained from the Extracts from ["The Blacksmith of the Peak; or, village piety and usefulness, exemplified in the life of the late John Hallam, of Sparrowpit, Derbyshire"](http://peakdistricthallamfamily.weebly.com/extracts-from-blacksmith-of-the-peak.html)
 
 Initially meetings were held in the barn at Barmoor Farm on the hillside opposite the current chapel, but after about 50 years a small chapel was built in the village.
 
